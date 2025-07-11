@@ -6,5 +6,7 @@
 Если не удастся осуществить подключение, напишите мне, пожалуйста.
 
 Телеграм: @Yuli_0_0
+
 ВК: https://vk.com/uliyouli
+
 Outlook: Iulia.Shanina@urfu.me
